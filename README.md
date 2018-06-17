@@ -1,0 +1,1 @@
+# nakitsiz_toplum
